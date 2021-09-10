@@ -1,2 +1,32 @@
 # lising.ingl-s
-leitura.
+# Agradecimentos ingês.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
